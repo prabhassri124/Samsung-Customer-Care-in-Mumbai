@@ -1,0 +1,2 @@
+# Samsung-Customer-Care-in-Mumbai
+we are giving warranty spare parts. The most advanced technology of its time is 65 inches and 77inches with a combination of colour contrast and curved screen. There is a budget TV that is coming with HD and higher in budget range TV with full HD. Samsung Customer Care in Mumbai The difference between HD and full HD is 720pis the full HD is 1080p. These are the highest resolutions provided by any budget ranged TV’s. https://samsungwashingmachineservicecenterinmumbai.com/samsung-customer-care-in-mumbai/
